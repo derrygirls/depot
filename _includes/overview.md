@@ -1,1 +1,1 @@
-Welcome to the Tower Museum 'Shirt Factories of Derry/Londonderry' Exhibition. Select a number below to hear the amazing stories from the factory workers themselves.
+Welcome to the Interactive Poster that Naomi Petropoulos created so you can hear participant voices on this Oral History research. The research has been completed at Queen's University Belfast and the research is supported by Depot (Deindustrialization and the Politics of Our Time). Select a number below to hear the amazing stories from the factory workers themselves.
